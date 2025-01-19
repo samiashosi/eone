@@ -1,4 +1,4 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Comfortaa&size=26&pause=1000&width=435&lines= Samia+shosi++.+.+.+)](https://git.io/typing-svg)
+
 
 <h1 align="center" </h1>
 - 👀 Hi.. 🌱
